@@ -1,2 +1,3 @@
-my name is md bablu ansari .i am from bihar 
-i am student of bca in mmu 
+My name is md Bablu Ansari i am from bihar
+and i am a student of bca in MMU university
+
